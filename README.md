@@ -1,1 +1,1 @@
-# super-duper-disco
+# how to use
